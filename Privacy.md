@@ -1,4 +1,4 @@
-<h1>Privacy Policy for nichitamotoc</h1>
+<h1>Privacy Policy for nichitamotoc.com</h1>
 
 <p>At nichitamotoc.com, accessible from nichitamotoc.com, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by nichitamotoc.com and how we use it.</p>
 
